@@ -4,7 +4,34 @@
 - 💞️ I’m looking to collaborate on ..fjmu and top tech digital company .
 - 📫 How to reach me ...just text on WhatsApp 03469864652
 - 😄 Pronouns:  Ansari/Samadraj/Sam/
-- ⚡ Fun fact: lonelines
+- ⚡ Fun fact:  Abdul Samad, a medical student /  Business man( insha'Allah ❤️)
+
+        ⤵️⤵️⬇️⬇️⬇️
+
+
+---
+
+1. Future Doctor and Business man in Progress:
+
+
+2. Latin Is Your Second Language
+
+3. Coffee > Blood:
+
+4. Human Encyclopedia:
+
+5. Stress? Never Heard of Her:
+.
+
+6. Dexterity Master
+
+7. Diagnosis Machine:
+
+8. Double Life:"
+
+9. Unshakable Spirit:
+
+10. Future Life-Saver:
 - 
 
 <!---
